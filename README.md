@@ -32,7 +32,7 @@ I'm a passionate software developer focused on building smart, user-centric appl
 ## 🤝 Let's Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/suwam-subedi-40024a358)  
-- 📧 Email: suwamsubedi@gmail.com  
+- 📧 Email: suwamsubedi30@gmail.com, suwam159@gmail.com  
 - 🗨️ Fun fact: I love racing, building tech stuff, and solving real-world problems!
 
 ---
